@@ -39,7 +39,7 @@ So, if you have that kind of experience, i'd love to meet up with you 😃
 
 ## 🚀 Fun Fact 'bout Me
 
-I familiarized myself with **Singlish** by watching one of my boss' [Youtube channel](https://www.youtube.com/@singaporeanboy6072).
+I familiarized myself on **Singlish** by watching one of my boss' [Youtube channel](https://www.youtube.com/@singaporeanboy6072).
 
 Thanks Eugene for your videos 🤣.
 
