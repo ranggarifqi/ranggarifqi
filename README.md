@@ -8,7 +8,7 @@ I aspire to become a software architect one day, so that i can lead my own start
 
 My main stack is **Typescript**, **NodeJS**, **PostgreSQL**, and **React**
 
-And I'm currently familiarizing myself on **clean architecture** using **Golang** & **Java**. So you will find 
+And I'm currently familiarizing myself on **clean architecture** using **Golang** & **Java**
 
 ## ❓ You can ask me about...
 
