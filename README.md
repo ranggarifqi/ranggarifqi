@@ -45,7 +45,7 @@ Thanks Eugene for your videos 🤣.
 
 ## 💬 Word of Wisdom 
 
-I believe that, **"Language"** is an important skill that you can use to get a new **knowledge** & **opportunities**.
+I believe that, **"Language"** is an important skill that you can use to get new **knowledge** & **opportunities**.
 
 I remember the first time i decided to work overseas.
 It was a bit reckless, cos my English was trash & i rarely talks using it. But i can moderately understand when someone speaks in it. So i was yolo-ing at that time.
