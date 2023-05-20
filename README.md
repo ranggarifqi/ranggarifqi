@@ -17,6 +17,7 @@ And I'm currently familiarizing myself on **clean architecture** using **Typescr
 * Javascript & Typescript
 * ReactJS
 * PostgreSQL
+* Git stuff
 
 ## 🤔 I’m looking for help with...
 
