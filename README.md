@@ -56,8 +56,6 @@ Now i learned that if you want to be more comfortable in a language, learn the b
 
 As long as you can understand what people say, and they can understand what you said, it's all good.
 
-I'm planning to apply that method to Arabic language as well. Cos, come on... being a muslim but know nothing about Arabic language ? that's not funny man.
-
 ## 👋 Last but not least
 
 I hope you can find anything useful in my github account.
