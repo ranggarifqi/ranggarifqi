@@ -44,18 +44,6 @@ I familiarized myself on **Singlish** by watching one of my boss' [Youtube chann
 
 Thanks Eugene for your videos 🤣.
 
-## 💬 Word of Wisdom 
-
-I believe that, **"Language"** is an important skill that you can use to get new **knowledge** & **opportunities**.
-
-I remember the first time i decided to work overseas.
-It was a bit reckless, cos my English was trash & i rarely talks using it. But i can moderately understand when someone speaks in it. So i was yolo-ing at that time.
-
-Turns but it was one of the best decision that i had in my life.
-Now i learned that if you want to be more comfortable in a language, learn the basic, improve your listening skill, then just **throw yourself into the jungle** to improve your speaking. Don't worry about grammars & accent.
-
-As long as you can understand what people say, and they can understand what you said, it's all good.
-
 ## 👋 Last but not least
 
 I hope you can find anything useful in my github account.
